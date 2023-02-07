@@ -8,7 +8,7 @@ curiosa em aprender novas técnicas de trabalho e goste de trabalhar em grupo.
 Link do meu Twitter:https://twitter.com/MarcYus_Jp
 Link do meu linkedin: https://www.linkedin.com/in/marcos-oshiro-987a15180/
 
-VAMOS NOS CONECTAR!!🌐🖥️
+VAMOS NOS CONECTAR? 🌐🖥️
 <!--
 **marcososhiro1/marcososhiro1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
